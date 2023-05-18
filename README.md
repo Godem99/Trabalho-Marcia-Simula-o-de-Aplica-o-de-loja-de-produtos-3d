@@ -1,1 +1,0 @@
-# Trabalho-Marcia-Simula-o-de-Aplica-o-de-loja-de-produtos-3d
